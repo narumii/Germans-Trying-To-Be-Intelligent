@@ -1,3 +1,5 @@
+## Sorry for bad english don't punch me pls
+
 > ScaredDevWczoraj o 22:06
 
 >  @なるみ For you if you don't know about Packets 
